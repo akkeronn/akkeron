@@ -20,10 +20,10 @@ Basic dni criteria, racist, homophobic, toxic, BELOW 13 or OVER 30, bully others
 
 <img width="1920" height="75" alt="githr" src="https://github.com/user-attachments/assets/e8d5b000-fe83-4344-8fa1-7bfc71dbe592" />
 
-* interests
+* interests:
   i love writing, drawing, book reading, and watching whatever comes to interest. I have fully watched every POV of Unstable Universe, watched all of JJK, read through all of the JJK manga, and watched all of the Harry Potter movies. I love deathnote, phantom busters, ponytown, minecraft, wayside school, ddlc, Miracle Musical, INOHA, Evanescence, Why Don't We, Resident Evil, Jojos, Deathnote, Coraline, roblox, and watching horror movies / videos / monologs.
 
-  * dislikes
+* dislikes:
     I don't really dislike anything. . . Maybe strong scents, noises, and fish.
     
     <img width="1920" height="75" alt="githr" src="https://github.com/user-attachments/assets/e8d5b000-fe83-4344-8fa1-7bfc71dbe592" />
