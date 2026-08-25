@@ -31,4 +31,4 @@ Basic dni criteria, racist, homophobic, toxic, BELOW 13 or OVER 30, bully others
     
 
 
-unfortunately i have to end it here but i will come back to edit it and add things that need to be added,
+unfortunately i have to end it here but i will come back to edit it and add things that need to be added, it's also my sort of first time on github and doing this was hard enough so bare with me. . .
